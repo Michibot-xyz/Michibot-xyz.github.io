@@ -1,1 +1,1 @@
-# Michibot-xyz.github.io
+# [Michibot](https://michibot.xyz/)
