@@ -1,1 +1,1 @@
-# [Michibot](https://michibot.xyz/)
+# [Michibot.xyz](https://michibot.xyz/)
